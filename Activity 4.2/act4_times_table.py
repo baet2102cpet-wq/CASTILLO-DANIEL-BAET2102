@@ -1,4 +1,4 @@
-#Daniel Ivan Castillo
+#DANIEL IVAN CASTILLO
 #BAET 2102
 #TIMES TABLE
 
